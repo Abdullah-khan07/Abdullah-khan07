@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Flutter & Dart**
 
-- 📫 How to reach me **abdullahahmedkhan072@gmail.com
+- 📫 How to reach me **https://www.linkedin.com/in/abdullah-ahmed-khan-b407b3354/
 
 
 
